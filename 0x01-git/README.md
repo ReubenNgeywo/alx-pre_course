@@ -1,1 +1,1 @@
-A great dawn
+It was a great dawn indeed
